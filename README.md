@@ -1,1 +1,0 @@
-# Syahril-Wildan-Data-Mining
